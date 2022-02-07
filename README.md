@@ -12,3 +12,4 @@ xi. Because then I will learn more deeply and fully.
 <br>
 xii. Embracing everything: victories and obstacles. 
 Frustration and excitement. Just everything.
+xiii. But also just trying to have some fun.
