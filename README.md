@@ -6,7 +6,9 @@ v. Filled with new things to learn.vi. But I know that we can all do this togeth
 vii. and we struggle, then there is always help   
 viii. luckily there are a lot of online resources  
 ix. as well as help from your colleages and coaches   
-X. I am doing my besy to enjoy the process too.
+x. I am doing my best to enjoy the process too.
+<br>
 xi. Because then I will learn more deeply and fully.
+<br>
 xii. Embracing everything: victories and obstacles. 
 Frustration and excitement. Just everything.
